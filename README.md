@@ -10,4 +10,5 @@
 
 _Steve Jobs_
 
-<Work in progress... Come back soon for a more beautiful page ! (at least let me the time to learn :-) )
+_Work in progress... Come back soon for a more beautiful page ! (at least allow me some time to learn :-) )_
+
